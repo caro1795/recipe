@@ -3,4 +3,4 @@
 * 1 tsp salt
 * 1/2 onion
 * coriander
-* a smile
+* 3 tsp pepper
